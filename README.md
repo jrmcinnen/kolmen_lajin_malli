@@ -1,0 +1,1 @@
+# kolmen_lajin_malli
